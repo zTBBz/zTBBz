@@ -1,4 +1,7 @@
-### ☭ Can't you hear the worker's whisper? The commanders are calling for war. Take control of houses and factories. Let the damn idol be overthrown ! ☭ 
+### ☭ Can't you hear the worker's whisper? ☭ 
+### ☭ The commanders are calling for war. ☭ 
+### ☭ Take control of houses and factories. ☭ 
+### ☭ Let the damn idol be overthrown ! ☭ 
 
 <!--
 **zTBBz/zTBBz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
